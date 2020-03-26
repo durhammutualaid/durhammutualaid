@@ -7,7 +7,7 @@
 - #### [Become an organizer](https://docs.google.com/forms/d/e/1FAIpQLSfv31IL5Z0drfou4PzIj-GJidGXmKNw12JrXeoqIxTqNp8zPg/viewform)
 
 ## About Us
-We are a group of neighbors that are organizing resources for those who need them.
+We are a group of neighbors that are organizing to share resources.
 
 ## [Facebook Group](https://www.facebook.com/groups/durhammutualaid/?multi_permalinks=142510123849515&notif_id=1585230408132059&notif_t=group_highlights)
 
@@ -23,5 +23,3 @@ We are a group of neighbors that are organizing resources for those who need the
 ### [CORONAVIRUS RESOURCE KIT](https://docs.google.com/document/d/1Rcan4C_e6OBFBI5bUn7MtYK74Ab-WarxyJmDvZUI_YA/preview)
 
 ### [Durham Mutual Aid Google Drive](https://drive.google.com/open?id=198-qqcBiat_jqHJP0CWmpfb6PZLPbZs4)
-
-### [Employment and COVID19](https://drive.google.com/open?id=1wvF2447LoKNrwuTw0tfBtPNFb9mcK_f-)
