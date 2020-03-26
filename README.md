@@ -6,7 +6,7 @@
 ### Hotline: (919) 886-5334
 
 ## About Us
-We are a group of neighbors that are organizing to resources for those who need them.
+We are a group of neighbors that are organizing resources for those who need them.
 
 ## Neighborhoods
 - West end : contact info
