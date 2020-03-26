@@ -1,13 +1,15 @@
 # Durham Mutual Aid
 
 ### What do you need?
-#### Hotline: (919) 886-5334
+- #### Hotline: (919) 886-5334
 
 ### What can you offer?
-#### [Become an organizer](https://docs.google.com/forms/d/e/1FAIpQLSfv31IL5Z0drfou4PzIj-GJidGXmKNw12JrXeoqIxTqNp8zPg/viewform)
+- #### [Become an organizer](https://docs.google.com/forms/d/e/1FAIpQLSfv31IL5Z0drfou4PzIj-GJidGXmKNw12JrXeoqIxTqNp8zPg/viewform)
 
 ## About Us
 We are a group of neighbors that are organizing resources for those who need them.
+
+## [Facebook Group](https://www.facebook.com/groups/durhammutualaid/?multi_permalinks=142510123849515&notif_id=1585230408132059&notif_t=group_highlights)
 
 ## Neighborhoods
 - West end : contact info
