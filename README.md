@@ -1,9 +1,10 @@
 # Durham Mutual Aid
 
 ### What do you need?
-### What can you offer?
+#### Hotline: (919) 886-5334
 
-### Hotline: (919) 886-5334
+### What can you offer?
+#### [Become an organizer](https://docs.google.com/forms/d/e/1FAIpQLSfv31IL5Z0drfou4PzIj-GJidGXmKNw12JrXeoqIxTqNp8zPg/viewform)
 
 ## About Us
 We are a group of neighbors that are organizing resources for those who need them.
